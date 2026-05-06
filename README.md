@@ -1,2 +1,3 @@
 # Cosmo-Fight
 The worst game ever
+Play this at your own discretion. It is not something fun. It is not entertaining. Do not try...
